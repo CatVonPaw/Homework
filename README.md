@@ -1,3 +1,3 @@
 # Homework
 
-Exam submmission added.
+Exam submmission.
